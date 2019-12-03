@@ -1,1 +1,12 @@
 # A-Bird-of-the-Air-Will-Carry-the-Tale
+
+
+My recent work explores plants of Israel. I was drawn to the topic as a way of exploring my own identity. In moving away from home I began to ask myself who/what do I identify as/with and why? I always identified as Jewish although my family and I barely practiced. This was partially due to our rural upbringing, our small farm was a 35 minute drive from the nearest temple. And so, I used this project as a way to learn about the rural and Jewish intersections of my identity. 
+
+The research has lead me on a frustrating and wild hunt. My current project A Bird of the Air Will Carry the Tale explores the plant known scientifically as Gundelia Tournefortii. The plant is native to Israel and the surrounding countries; however, in Israel, it is currently involved in the Israeli-Palestinian conflict. 
+
+By the 1960s, many of Israel’s native wildflower species were nearly extinct due to the popularity of flower picking. This, combined with Zionist connection to the physical land, caused the Israeli Government to protect many species. About 40 years later, the government protected the plant Gundelia Tournefortii. The government justified its protection by suggesting that the plant population was suffering due to over consumption. Perpetrators face fines and up to three years in prison. Gundelia Tournefortii - Akkub (akkoub, akub, akoub) in Arabic - has been a part of Palestinian culinary and foraging tradition for thousands of years. The Palestinian response has been critical of the plants protection, suggesting that it is another manifestation of Zionist attempts to extinguish non-Jewish peoples and culture from Israel. In this way, Gundelia Tournefortii becomes politically imbricated by the conflicted land in which it grows.  
+
+In its current state "A Bird of the Air Will Carry the Tale (The Akkub is the Witness)" exists as an online PDF document available at the URL : _____________________. The document presents anachronous exceprts composed of research about the plant, Israeli protection efforts, and Palestinian culinary and foraging practices. In addition, each resource in A Bird of the Air Will Carry the Tale is linked fully for anyone interested in deeper exploration. 
+
+The PDF is meant to catalyze discussion of the topic and research. As governments role out new environmental protection plans, how should the triage of culture and environmental protection be addressed? 
